@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-RORM900530HPLMVR06
+RORM900530HPLMVR06
